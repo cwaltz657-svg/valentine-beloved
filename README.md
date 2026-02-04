@@ -1,0 +1,1 @@
+This project is dedeicated to my beloved, Keiera. She is marvelous, magnificent, and most importanly...mine. My vocabulary shall never be able to communicate her greatness. I built this program to ask her to be my Valentine for Feburary 2026. I wanted to be more creative.
